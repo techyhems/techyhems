@@ -16,5 +16,5 @@ Here are some ideas to get you started:
 -->
 
 
-📫 How to reach me: www.hemantaphuyal.com.np
-😄 Pronouns: he/him
+- 📫 How to reach me: www.hemantaphuyal.com.np
+- 😄 Pronouns: he/him
